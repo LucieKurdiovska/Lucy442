@@ -1,2 +1,2 @@
 # Lucy442
-L
+tento repozitar jsem zalozila jako soucast ukolu v ramci predmetu nami
